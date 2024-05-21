@@ -4,4 +4,4 @@
 - Estou cursando a plataforma alura,
 - E aqui irei postar meus projetos, já finalizados.
 
-![](https://tenor.com/pt-BR/view/racoon-gif-5491638008443168963)
+![](https://media1.tenor.com/m/TDY3rDhJ6MMAAAAC/racoon.gif)
